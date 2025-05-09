@@ -1,34 +1,57 @@
-# Hostinger 20% Off Coupons
+# Hostinger 20% Off Coupons Domain Renewal
 
-[![Hostinger coupon code domain renewal](https://github.com/user-attachments/assets/2b8799a3-f5ac-4d9c-a161-2312247a9826)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
+Claim the latest Hostinger coupon codes for 2025, including a massive [20% discount for students](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ), exclusive savings on domain renewals, and more.
 
-Claim the latest Hostinger coupon codes for 2025, including a massive [75% discount for students](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ), exclusive savings on domain renewals, and more.
+[![Discount button](https://github.com/user-attachments/assets/7c5df22a-d2c2-42a2-8fb0-67a326613abd)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
 
-[![Discount button](https://github.com/user-attachments/assets/3fe564cb-13ef-47d9-b490-b6fe1ff84abb)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
+## 20% OFF Hostinger Domain Coupon Code
 
-## 75% OFF Hostinger Domain Coupon Code
+Use the coupon code Q44SALMAN8OJ to **get up to 20% off**. This applies when you register or transfer a domain with Hostinger. This offer is for a limited time and includes popular domain extensions. Don’t miss your chance to get the perfect domain at a great discount. Act now, modern internet explorers!
 
-Use the coupon code Q44SALMAN8OJ to **get up to 75% off**. This applies when you register or transfer a domain with Hostinger. This offer is for a limited time and includes popular domain extensions. Don’t miss your chance to get the perfect domain at a great discount. Act now, modern internet explorers!
+[![Discount button](https://github.com/user-attachments/assets/7c5df22a-d2c2-42a2-8fb0-67a326613abd)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
 
-[![Discount button](https://github.com/user-attachments/assets/3fe564cb-13ef-47d9-b490-b6fe1ff84abb)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
+## Hostinger May Sale – Up to 90% Off (Sitewide Offer)
+
+🔥 Huge discounts on all plans this May!
+
+* **Premium Plan**: $2.69/month (₹134.10)
+* **Business Plan**: $3.59/month (₹224.10)
+* **Cloud Startup Plan**: $7.19/month (₹629.10)
+
+[![Discount button](https://github.com/user-attachments/assets/7c5df22a-d2c2-42a2-8fb0-67a326613abd)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
+
+## Hostinger India Coupon – 80% OFF + Extra 10% OFF
+
+Get **80% off** plus an **extra 10% off** on **Web Hosting, VPS, Domains**, and more with our **exclusive coupon** for Hostinger India.
+
+## Hostinger India – Extra 10% OFF on WooCommerce Hosting
+
+Get an **extra 10% off** on **CMS / WooCommerce Hosting** during Hostinger India’s exclusive sale.
+
+✅ 99.9% uptime
+✅ Fast performance
+✅ Easy control panel
+✅ 30-day money-back guarantee
+
+[![Discount button](https://github.com/user-attachments/assets/7c5df22a-d2c2-42a2-8fb0-67a326613abd)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
 
 ## 85% Off Hostinger Promo Code
 
 Save up to **85% on Hostinger's web hosting services**. This covers Shared, WordPress, and VPS hosting plans. This special offer is for a limited time. You can also get a free domain with certain plans. Don’t miss out—upgrade your hosting today and grab this great discount!
 
-[![Discount button](https://github.com/user-attachments/assets/3fe564cb-13ef-47d9-b490-b6fe1ff84abb)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
+[![Discount button](https://github.com/user-attachments/assets/7c5df22a-d2c2-42a2-8fb0-67a326613abd)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
 
 ## Hostinger coupon code for first time user
 
 First-time users can get up to 90% off on Hostinger hosting plans. Just use the coupon code Q44SALMAN8OJ. This deal works best for longer subscriptions, like 4-year plans, to save more. Act now to grab this limited-time offer and start your website with Hostinger's reliable hosting!
 
-[![Discount button](https://github.com/user-attachments/assets/3fe564cb-13ef-47d9-b490-b6fe1ff84abb)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
+[![Discount button](https://github.com/user-attachments/assets/7c5df22a-d2c2-42a2-8fb0-67a326613abd)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
 
 ## Hostinger 20% off coupon code
 
 **Get a 20% discount** on Hostinger's hosting services! This offer includes many plans, like Shared, VPS, and Cloud hosting. To claim your discount, use the coupon code SUMMER20 at checkout. Claim the discount coupon fast to enjoy this limited-time deal and enhance your web hosting with Hostinger's reliable services.
 
-[![Discount button](https://github.com/user-attachments/assets/3fe564cb-13ef-47d9-b490-b6fe1ff84abb)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
+[![Discount button](https://github.com/user-attachments/assets/7c5df22a-d2c2-42a2-8fb0-67a326613abd)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
 
 ## Detailed Hostinger Coupon Codes for 2025
 
@@ -108,12 +131,11 @@ Here’s a rundown of the best Hostinger coupon codes you can use this year. Whe
 
 ### More coupons
 
-* [Blaze.ai Promo Code](https://github.com/Blaze-AI-Discount/coupon)
-* [Dux-soup coupon](https://github.com/Dux-soup/coupon/)
-* [Typeform Discount Code](https://github.com/Typeform-Discount/coupon)
-* [educative coupon](https://github.com/Educative-Discount/coupon/)
-* [Hostinger Coupon Code](https://github.com/Hostinger-Deals/coupon/)
-* [kdspy coupons](https://github.com/KDSPY/coupon/)
-* [everbee promo code](https://github.com/Everbee-Discount/coupon/)
-* [jenni ai promo code](https://github.com/Jenni-AI-Discount/coupon)
-* [se ranking coupon](https://github.com/SE-Ranking/coupon)
+* [Blaze.ai 50% off Promo Code](https://github.com/williamssw/Blaze/)
+* [Dux-soup 50% Off coupon](https://github.com/williamssw/Dux/)
+* [Typeform Discount coupons](https://github.com/pauld34rf/Typeform/)
+* [educative coupon code](https://github.com/pauld34rf/Educative/)
+* [kdspy discount coupons](https://github.com/williamssw/kdspy)
+* [everbee coupon & promo code](https://github.com/williamssw/everbee/)
+* [jenni ai coupon & promo code](https://github.com/SERankingCoupon/Jenni/)
+* [se ranking discount coupon](https://github.com/SERankingCoupon/discount/)

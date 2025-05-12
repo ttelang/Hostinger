@@ -129,6 +129,20 @@ Here’s a rundown of the best Hostinger coupon codes you can use this year. Whe
 
 * How to Use: When checking out, use the INDIA50 coupon code to claim your discount.
 
+## How to Activate Hostinger Hosting Coupon Code 2025? (Worldwide)
+
+To redeem Hostinger promo codes in the USA & Other international countries, here are the general steps:
+
+Use Hostinger **promo code special link** to visit Hostinger official website & select a relevant hosting plan
+
+Once you’re on their site, click on the Add to Cart button, as shown above.
+
+You’ll be then taken to their payment page, which looks like this (before applying the coupon);
+
+Then Paste the Hostinger Coupon Code
+
+Finally proceed with the payment and enjoy Hostinger services.
+
 ### More coupons
 
 * [Blaze.ai 50% off Promo Code](https://github.com/williamssw/Blaze/)

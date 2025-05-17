@@ -6,7 +6,7 @@ Claim the latest Hostinger coupon codes for 2025, including a massive [20% disco
 
 ## 20% OFF Hostinger Domain Coupon Code
 
-Use the coupon code Q44SALMAN8OJ to **get up to 20% off**. This applies when you register or transfer a domain with Hostinger. This offer is for a limited time and includes popular domain extensions. Don’t miss your chance to get the perfect domain at a great discount. Act now, modern internet explorers!
+Use the coupon code NTFTARUNTLQL to **get up to 20% off**. This applies when you register or transfer a domain with Hostinger. This offer is for a limited time and includes popular domain extensions. Don’t miss your chance to get the perfect domain at a great discount. Act now, modern internet explorers!
 
 [![Discount button](https://github.com/user-attachments/assets/7c5df22a-d2c2-42a2-8fb0-67a326613abd)](https://hostinger.in?REFERRALCODE=NTFTARUNTLQL)
 

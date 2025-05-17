@@ -148,7 +148,7 @@ Finally proceed with the payment and enjoy Hostinger services.
 * [Blaze.ai 50% off Promo Code](https://github.com/williamssw/Blaze/)
 * [Dux-soup 50% Off coupon](https://github.com/williamssw/Dux/)
 * [Typeform Discount coupons](https://github.com/pauld34rf/Typeform/)
-* [educative coupon code](https://github.com/ttelang/Educative/)
+* [Educative coupon code](https://github.com/ttelang/Educative/)
 * [kdspy discount coupons](https://github.com/williamssw/kdspy)
 * [everbee coupon & promo code](https://github.com/williamssw/everbee/)
 * [jenni ai coupon & promo code](https://github.com/SERankingCoupon/Jenni/)
